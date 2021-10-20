@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Mustakeem
+- 👀 I’m interested in water resouorce management and and water sustainability
+- 🌱 I’m currently pursuing my PhD in Environmental Sciences and Engineering
+- 💞️ I’m looking to collaborate on various water resuorce management initiatives
+- 📫 You can reach me at mustakeeme@gmail.com or my LinkedIn account: www.linkedin.com/in/mustakeeme/
